@@ -1,2 +1,0 @@
-# lack
-Müller Lack
